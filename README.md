@@ -1,6 +1,6 @@
 Grupo: 
 Alberto Gabriel Oliveira da Silva RE: 318200579
-Gabriel Tino Araújo RE: 3182318202397
+Gabriel Tino Araújo RE: 318202397
 
 O arquivo anexo possui todas as tarefas solicitadas para esta avaliação.
 
